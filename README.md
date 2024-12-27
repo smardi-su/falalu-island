@@ -1,3 +1,3 @@
 # falalu-island
 <br>
-Author - Sagarika Marandi
+Author - Sagarika 'smardi' Marandi
